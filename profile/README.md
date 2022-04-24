@@ -7,3 +7,5 @@
 🍹We also believe in having fun and enjoying the coding process, so feel free to chat about whatever you want in general, or any other channel!
 
 #### So [join, now](https://discord.com/invite/yCukuAC79B). 🔪
+
+[![Hello there](https://github.githubassets.com/images/mona-whisper.gif)](https://discord.com/invite/yCukuAC79B)
