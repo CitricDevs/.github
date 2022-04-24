@@ -1,7 +1,7 @@
 ## Welcome to Citrus!
 
 🍋+🍊-🔪=🍹
-The community of developers that sweet, not sour.
+The community of developers that's sweet, not sour.
 
 #### So [join, now](https://discord.com/invite/yCukuAC79B). 
 
